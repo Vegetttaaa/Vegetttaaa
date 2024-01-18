@@ -1,5 +1,5 @@
 Sup! Welcome to my profile✌
-What im doing? I'm begginer in programming, but everyday I'm working with Graphic Design, Video Editing and DTP.!
+What am I doing? I'm begginer in programming, but everyday I'm working with Graphic Design, Video Editing and DTP.!
 
 
 <!---
