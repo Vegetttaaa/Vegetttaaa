@@ -2,7 +2,7 @@ Sup! Welcome to my profile✌
 
 What am I doing? I'm currently begginer in programming.			
 
-Everyday I'm working with Graphic Design, Video Editing and DTP.!
+Everyday I'm working with Graphic Design, Video Editing and VFX!
 
 
 <!---
