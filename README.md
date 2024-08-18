@@ -1,6 +1,6 @@
 Sup! Welcome to my profile✌
 
-What am I doing? I'm currently begginer in programming.Also I'm new in FiveM Car Developement! 			
+What am I doing? I'm currently begginer in programming.Also I'm new in FiveM Developement! 			
 
 Everyday I'm working with Graphic Design, Video Editing and VFX!
 
